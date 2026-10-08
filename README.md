@@ -1,1 +1,0 @@
-# intelligentarray.github.io
